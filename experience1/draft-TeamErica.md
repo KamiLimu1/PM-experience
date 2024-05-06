@@ -18,7 +18,7 @@ We recamped that innovation, not all comprises of new ideas but also renovating 
 
  Towards the end of the meeting, we agreed that we were the best and wanted to be the best team. This is to be achieved by the mentor giving support to the mentees and cultivating a family spirit in the team (teamwork). Mentees also are expected to show up and show their best for all sessions, assignments, and every other activity in KamiLimu.
 
- ### Mentee Presentations
+### Mentee Presentations
 
 | Name of the Mentee| How they shared the Lessons|What stood out from the presentation| Link to the presentation|
 | ----------- | ----------- |------|------------|

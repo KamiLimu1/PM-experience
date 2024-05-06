@@ -1,1 +1,1 @@
-[Team Erica](/draft-TeamErica)
+[Team Erica](./draft-TeamErica.md)

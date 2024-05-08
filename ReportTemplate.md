@@ -30,5 +30,3 @@ Reflection points to consider:
 - What have you personally learned from or gained from the previous month’s interaction with your mentees and by leading the team?
 
 ### ANY OTHER THING YOU WISH TO RECORD THAT DO NOT FALL UNDER THE TITLES ABOVE
-
-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

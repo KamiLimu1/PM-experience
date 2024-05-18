@@ -1,7 +1,6 @@
-# Peer Mentorship Experience 1
-
 ## Team Erica
-- **Peer Mentor name: Erica Wanja**  
+
+- **Peer Mentor: Erica Wanja**  
 - Rachael  
 - Tiffany  
 - Collins  

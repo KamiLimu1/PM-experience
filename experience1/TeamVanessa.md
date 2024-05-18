@@ -1,5 +1,6 @@
 ## Team Vanessa
-- **Peer Mentor name: Vanessa Kamunya**  
+
+- **Peer Mentor: Vanessa Kamunya**  
 - Prince Gichere Mwangi
 - Sally Mulupi 
 

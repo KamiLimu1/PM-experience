@@ -33,4 +33,4 @@ The mentees really took their time in the preparation of the presentations . It 
 
 I also went through their dashboards to see the feedback they had given about the session and I appreciate their compliments towards which motivated me and glad that thesession was effective and awesome.
 
-Last but not least, we had fun and laughter in the sessions.
+Last but not least, we had fun and laughter in the sessions. 

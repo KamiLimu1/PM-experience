@@ -17,3 +17,12 @@ They took note of the tiniest details and gave us feedback on them.`
 `" I love how encouraging my peer mentees are. They both mentioned that they could see all the growth I'm making and it was very touching."`
 
 `"The session made clear the importance of trusting our instincts, and I’m excited to apply these insights beyond the session, honoring my heart’s guidance in all aspects of life. I can't wait for the next peer mentorship session..."`
+
+[Experience 3](experience3/) *11th - 30th June*
+
+`"What I love most about these sessions is seeing everyone's presentations"`  
+
+`"The discussions are really fun. It's good to hear different opinions and perspectives on various matters."`
+
+`"Your ability to listen attentively and provide constructive feedback has helped me navigate challenges and grow at Kamilimu."`
+

@@ -1,0 +1,13 @@
+[Team Erica](./TeamErica.md)  
+[Team Vanessa](./TeamVanessa.md)  
+[Team Abednego](./TeamAbednego.md)  
+[Team Abigail](./TeamAbigail.md)  
+[Team Bethly](./TeamBethly.md)  
+[Team Bruce](./TeamBruce.md)  
+[Team Daisy](./TeamDaisy.md)  
+[Team Felex](./TeamFelex.md)  
+[Team James](./TeamJames)  
+[Team Lindah](./TeamLindah)  
+[Team Sidonia](./TeamSidonia.md)  
+[Team Brian](./TeamBrian.md)
+

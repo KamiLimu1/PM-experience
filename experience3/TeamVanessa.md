@@ -17,6 +17,6 @@ The session began with introductions starting with the mentees followed by the p
 | Sally Mulupi | Storytelling | Different format of presentation in terms of visuals. New style from PowerPoint. | A portrait video similar to PowerPoint showcasing last month’s learnings |  |
 | Prince Gichere Mwangi | Spoken Word | Prince thought out of the box with the spoken word and soundtrack. | Spoken word presentation with Hans Zimmer's soundtrack in the background. |  |
 
-## What was a amazing
+## What was amazing
 
 The mentees made time to do this month's session at a later time than our usual meetings which I appreciated. During the session, the mentees were lively and engaging. The Languages of Apology quiz was particularly enjoyable to do as a group and was a good bonding session.
